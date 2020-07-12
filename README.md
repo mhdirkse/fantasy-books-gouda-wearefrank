@@ -42,7 +42,7 @@
 * Naomi Novik – “Ontworteld”.
     * Recensie Martijn: Een mooi boek. Er zit veel aktie in maar ook diepgang. Er zitten onverwachtse wendingen in.
 * Silvia Rietdijk – De Erfenis van het Steen. Uitgeverij Zilverbron.
-    * Erg goed. Hetzelfde verhaal wordt van heel verschillende kanten verteld. De karakters zijn heel verschillend.
+    * Recensie Martijn: Erg goed. Hetzelfde verhaal wordt van heel verschillende kanten verteld. De karakters zijn heel verschillend.
 * Peter Schaap.
     * Recensie Martijn: Speelse fantasy verhalen. 
 
